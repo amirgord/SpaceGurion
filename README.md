@@ -1,5 +1,5 @@
-# SpaceGurion_FlightComputer
-
-
-# SpaceGurion
-# SpaceGurion
+![WhatsApp Image 2024-06-30 at 17 23 44](https://github.com/user-attachments/assets/4631ef0e-99d4-4b28-b5e1-d98b1f9aeccd)
+![WhatsApp Image 2024-06-30 at 17 18 09](https://github.com/user-attachments/assets/fb1ad040-83c1-4de0-80c9-cda59eb7535f)
+![WhatsApp Image 2024-06-30 at 17 11 20](https://github.com/user-attachments/assets/d2869c4d-1e79-4075-a5a9-f716c38322ec)
+![WhatsApp Image 2024-06-30 at 17 11 19 (1)](https://github.com/user-attachments/assets/4303fe66-cdac-446c-ad96-97b2dbba2f2a)
+![WhatsApp Image 2024-06-30 at 17 11 19](https://github.com/user-attachments/assets/468ef7db-2778-49ff-8c18-0d8633ec7dc6)
